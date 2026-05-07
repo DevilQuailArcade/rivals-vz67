@@ -1,4 +1,4 @@
-
+Experience rivals like never before with secret rivals Scripts, the #1 Script. Includes instant win and undetectable for unbeatable performance.
 
 
 
